@@ -14,7 +14,7 @@
 
 🎶 I like to listen to songs
 
-⚡ Fun fact: i like **Juice Wrld**
+⚡ Fun fact: i like **Pancakes**
 
 
 ## Visitor Counter
